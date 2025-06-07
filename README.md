@@ -24,5 +24,5 @@ Over 80% of Africa's workforce is in the informal sector and lacks access to for
 
 ---
 
-### 🔗 Follow our journey on [X](https://x.com/stackobjects)
+### 🔗 Follow our journey on [X](https://x.com/credence_id)
 
